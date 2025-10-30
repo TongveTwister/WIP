@@ -1,3 +1,3 @@
 # Hello, Swiss here! *Welcome to my* ***README*** !
-<img src="https://www.desiglitters.com/wp-content/uploads/2017/05/Red-Star-Image.gif" alt="Red Star Image - DesiGlitters.com"/><img src="https://www.desiglitters.com/wp-content/uploads/2017/05/Red-Star-Image.gif" alt="Red Star Image - DesiGlitters.com"/>
-<img width="100" height="1000" alt="image" src="https://github.com/user-attachments/assets/e20a5b0f-b8ed-44c6-83bf-43e5f850d7fb" /> <img src="https://img1.picmix.com/output/stamp/normal/4/4/2/9/2149244_18ff2.gif" alt="stars ,red, heart,frame,gif, Adam64, stars , red , heart , frame , gif ,  adam64 - Free animated GIF - PicMix"/>
+<img src="https://i.pinimg.com/originals/17/96/ef/1796ef0033df2a1bb61b02d731541119.gif" alt="Stars Glitter GIF - Stars Glitter Gb - Discover &amp; Share GIFs"/>
+
